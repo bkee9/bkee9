@@ -20,7 +20,7 @@ Bookings are always done one wek to the event
 Follow us @ instagram @GREATARTPHOGRAPHY & NancieMweshPixels
 Find us on Faceboot @ NancieMweshPixels
 Thankyou for your continued support.
-
+file:///home/moringa/Documents/IMG_20210717_170601.jpg
 
 
 
