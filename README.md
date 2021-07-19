@@ -2,7 +2,7 @@ Name:Nancy Mwende
 Title:NancieMweshPixels
 Motto:ENHANCE THE BEAUTY THAT ALREADY EXISTS
 
-Hello good peopl.
+Hello citizeens,
 My name is Nancy Mwende.
 The owner and the CO-Founder of NancieMweshPixesls and
 GEARARTPHOTOGRAPHY.They all exist to join people in making juicy memories during several occationsaround the world.
