@@ -18,13 +18,13 @@ a)Backed up photos for each event for future reference by the photographers.
 b) Free lessons to new photographers eery fiday followed by a approved certificate from the title.
 c) We give opportunities to the physically challenged people in the society.
 d) Our cameras don't use flash hence prpduce good quality pictures.
-e) We offer half prices to charity events every sundays.
+e) We offer half prices to the people commited to charity events on sundays.
 f) Professional protographers to make your dream come true.
 
 We are located in Komarock,
 Sector 3B opposite K Mall.
 Bookings are always done one week to the maint event.
-Follow us @ instagram @GREATARTPHOGRAPHY & NancieMweshPixels
+Follow us @ instagram @GREATARTPHOGRAPHY & NancieMweshPixels.
 Find us on Facebook @ NancieMweshPixels
 Thankyou for your continued support.
 file:///home/moringa/Documents/IMG_20210717_170601.jpg
