@@ -26,7 +26,7 @@ Sector 3B opposite K Mall.
 Bookings are always done one week to the maint event.
 Follow us @ instagram @GREATARTPHOGRAPHY & NancieMweshPixels.
 Find us on Facebook @ NancieMweshPixels
-Thankyou for your continued support.
+Thank you for your continued support.
 file:///home/moringa/Documents/IMG_20210717_170601.jpg
 
 
