@@ -1,32 +1,19 @@
-Name:Nancy Mwende
-Title:NancieMweshPixels
-Motto:ENHANCE THE BEAUTY THAT ALREADY EXISTS
+Name;
+Nancy Mwende
 
-Hello citizens,
-My name is Nancy Mwende.
-The owner and the CO-Founder of NancieMweshPixesls and
-GEARARTPHOTOGRAPHY.They all exist to join people in making juicy memories during several occationsaround the world.
-Below are the rate cards to my bussiness.
+Aims;
+This website has the best images for memory creation.
 
-1. WEDDING OCCASSION===i) 2500/= per session(200 well edited pictures)
- 50 unedited pictures with a full well recorded event video.
-2. BABYSHOWER EVENTS===ii) 5000/= per session including...
- (150 well edited pictures) with a full well recorded video event.
-3. BIRTHDAY PARTY EVENT==iii) 1500 per session which includes(free birthday cake,60 edited photos,full event video & unlimited unedited photos).
-WHY CHOOSE THE ABOVE TITLES:
-a)Backed up photos for each event for future reference by the photographers.
-b) Free lessons to new photographers eery fiday followed by a approved certificate from the title.
-c) We give opportunities to the physically challenged people in the society.
-d) Our cameras don't use flash hence prpduce good quality pictures.
-e) We offer half prices to the people commited to charity events on sundays.
-f) Professional protographers to make your dream come true.
+Description;
+This is a my first photographic site.
 
-We are located in Komarock,
-Sector 3B opposite K Mall.
-Bookings are always done one week to the maint event.
-Follow us @ instagram @GREATARTPHOGRAPHY & NancieMweshPixels.
-Find us on Facebook @ NancieMweshPixels
-Thank you for your continued support.
+TECHNOLOGIES USED;
+HTML and CSS
+
+LICENSE
+
+Licensed under GNU GENERAL PUBLIC LICENSE in Kenya.
+
 file:///home/moringa/Documents/IMG_20210717_170601.jpg
 
 
